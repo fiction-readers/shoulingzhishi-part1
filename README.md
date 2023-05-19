@@ -4,7 +4,7 @@
 
 ### 2023/05/17 Wed
 
-- 在 [奇幻故事說不完](https://www.facebook.com/groups/558245969265282) 奇幻故事說不完
+- 在 [奇幻故事說不完](https://www.facebook.com/groups/558245969265282) 揪辦。
 
 ### 2023/05/18 Thur
 

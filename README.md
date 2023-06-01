@@ -1,5 +1,18 @@
 # 《獸靈之詩〈上〉：保留地的祭歌》讀書會資料
 
+## 購書連結
+
+實體書：
+
+- [讀冊](https://www.taaze.tw/usedList.html?oid=11101008247)
+- [博客來](https://www.books.com.tw/products/0010954862)
+
+電子書：
+
+- [讀墨](https://readmoo.com/book/210271294000101)
+
+（我知道還有很多其他的，想到或看到再補）
+
 ## 備忘
 
 ### 2023/05/17 Wed

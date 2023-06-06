@@ -1,5 +1,11 @@
 # 《獸靈之詩〈上〉：保留地的祭歌》讀書會資料
 
+## 讀書會心得連結
+
+- [進度 01 ：歷史、第一章](./checkpoint-01/checkpoint-01.md)
+- [進度 02 ：第二章](./checkpoint-02/checkpoint-02.md)
+- [進度 03 ：第三章](./checkpoint-03/checkpoint-03.md)
+
 ## 購書連結
 
 實體書：
